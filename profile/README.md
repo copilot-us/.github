@@ -1,4 +1,4 @@
-## Hi there 👋 Check out some of our plugins for ChatGPT! Slava Ukraini!
+## Hi there 👋 Check out some of our productivity AI apps! Slava Ukraini!
 
 
 
